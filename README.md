@@ -18,8 +18,7 @@ I don't know what to say, I can't feel it
 
 # Mango ˏˋ°•*⁀➷
 
-
-![Slay](https://scitechdaily.com/images/Fresh-Mango.jpg)
+<img src="https://scitechdaily.com/images/Fresh-Mango.jpg" width="400">
 
 
 [`An-ti-ti-ti-fragile`](https://www.youtube.com/watch?v=pyf8cbqyfPs)
