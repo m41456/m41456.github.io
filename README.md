@@ -1,5 +1,5 @@
 ## m41456.github.io
-# ଘ(੭ˊᵕˋ)੭* ੈ✩‧˚
+# Lovey Dovey ଘ(੭ˊᵕˋ)੭* ੈ✩‧˚
 **Maia Ysabelle J. Avila**
 
 LG Campion
