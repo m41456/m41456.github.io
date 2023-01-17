@@ -22,4 +22,4 @@ I don't know what to say, I can't feel it
 ![Slay](https://scitechdaily.com/images/Fresh-Mango.jpg)
 
 
-[`An-ti-ti-ti-fragile fragile`](https://www.youtube.com/watch?v=pyf8cbqyfPs)
+[`An-ti-ti-ti-fragile`](https://www.youtube.com/watch?v=pyf8cbqyfPs)
